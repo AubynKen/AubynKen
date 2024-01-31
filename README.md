@@ -1,4 +1,5 @@
 - 👋 Hi, I’m Pinglei He (my pseudo is @AubynKen)
-- 👀 I’m interested in wine brewing, fountain pen collections, rubik's cubes and other stuff
+- 👀 I’m interested in longboarding🛹, fountain pen collections🖋, rubik's cubes🟥 and other stuff
 - 🌱 I’m currently studying Engineering and Computer Science at CentraleSupélec in Paris
+- ☕️ Bubble tea ?
 - 📫 reach me at pingleihe@outlook.com
